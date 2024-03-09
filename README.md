@@ -1,4 +1,4 @@
-![logo](https://github.com/mayankRana26/mayankRana26/blob/main/banner.png)
+![logo](https://github.com/mayankRana26/mayankRana26/blob/main/bannersecond.jpg)
 
 <h1 align="center">Hi 👋, I'm Mayank Rana</h1>
 <h3 align="center">A passionate MERN stack developer from India</h3>
