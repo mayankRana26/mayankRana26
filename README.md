@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **ranamayank987@gmail.com**
 
-- 📄 Know about my experiences [https://resume-builder-test-new.masaischool.com/resume/?resumeId=65d388ef5256c88738f00016&profileId=self&templateName=TwoColumnMinimal&fontSize=small](https://resume-builder-test-new.masaischool.com/resume/?resumeId=65d388ef5256c88738f00016&profileId=self&templateName=TwoColumnMinimal&fontSize=small)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BrTomGCXpSAtCE-X8FbBWkCV99HJL-sI/view?usp=sharing](https://drive.google.com/file/d/1BrTomGCXpSAtCE-X8FbBWkCV99HJL-sI/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
